@@ -22,7 +22,7 @@ Banana flavored candies like Laffy Taffy are flavored like bananas that are now 
 ![illustration of curious george with a banana](https://upload.wikimedia.org/wikipedia/en/d/d8/Curious_George.png)
 >In *Curious George* by an author, and illustrated by a really cool illustrator, the main charachter Curious George eats a lot of bananas, though it is unclear what varietal he prefers.
 
-Though monocultures are prevalent due to the evil's of capitalism, many farmers pursue biodiversity as a method of preserving and investing in our planet and the resident species' futures.  
+Though monocultures are prevalent due to the evils of capitalism, many farmers pursue biodiversity as a method of preserving and investing in our planet and the resident species' futures.  
 
 To learn more about primates' favorite botanical fruit, click [here](https://en.wikipedia.org/wiki/Banana)
 
